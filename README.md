@@ -1,8 +1,8 @@
- beginner <br>
- lazy dumbass <br>
- code langs - none <br>
- thats all <br>
- ajajajjajjaajja
+- beginner <br>
+- lazy dumbass <br>
+- code langs - none <br>
+- thats all <br>
+- ajajajjajjaajja
 
 <!--
 **darkyisoffline/darkyisoffline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
