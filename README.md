@@ -1,4 +1,4 @@
-## bye 👋
+## IM LAZY DUMBASS IM RETARDED ASF
 
 <!--
 **darkyisoffline/darkyisoffline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
